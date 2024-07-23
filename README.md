@@ -1,4 +1,4 @@
-# __2nd at OLIVIA IX: Aquascape Design Prototype__
+# __2nd Place at OLIVIA IX: Aquascape Design Prototype__
 
 ## A DAY IN UNDERWATER FOREST PLASTIC CORIDOR
 
